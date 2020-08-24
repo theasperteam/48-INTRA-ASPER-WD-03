@@ -1,2 +1,2 @@
 # 48-INTRA-ASPER-WD-03
-UMANG SADHWANI, Saransh jain
+Ayushi Jain, Ayushi Gupta, Manav Agarwal
